@@ -1,4 +1,4 @@
-**Amur týla i tacingge dangsa - simple one**
+**Amur týla i tacingge dangsa - the simple one**
 
 
 
